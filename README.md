@@ -1,1 +1,1 @@
-# dsa_challenge
+DOMINGO, JOHN RHAY B. BSCS 2A
